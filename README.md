@@ -1,1 +1,1 @@
-GateCloud&reg; Site- Cloud Rent for Gaming PC's
+GateCloud&reg; Site- Cloud for Gaming PC's
